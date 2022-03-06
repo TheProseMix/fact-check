@@ -1,0 +1,3 @@
+# Fact Checking
+
+Keeping track and trying to verify the bullshit that I'm fed...
